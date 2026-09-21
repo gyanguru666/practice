@@ -1,2 +1,3 @@
 # practice
-hi teacher
+nalla paadanu
+enthokeyo cheyunnu
